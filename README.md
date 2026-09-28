@@ -12,7 +12,7 @@ https://www.shopcom.tn/product/solidworks-2025-sp3-0-premium/
 Product Price : 11,023 $
 
 Payment :
-https://www.shopcom.tn/payment
+https://www.shopcom.tn/payments
 
 Website :
 https://www.shopcom.tn
